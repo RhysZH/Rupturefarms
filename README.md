@@ -1,2 +1,2 @@
 # Rupturefarms
-Course Exercises - Dead meat!
+Course Exercises - Scrab Cakes
