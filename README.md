@@ -1,2 +1,2 @@
 # Rupturefarms
-Course Exercises - Scrab Cakes
+Course Exercises - Paramite Pies
